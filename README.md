@@ -1,2 +1,2 @@
-My first readme
-Now that I'm now coding, i reakky like mysekf, i enjoy every bit of it
+
+Now that I'm now coding, i really enjoy myself i really every bit of it
